@@ -1,1 +1,1 @@
-![data collection  drawio](https://github.com/user-attachments/assets/027e323f-51dd-4001-b616-6ccf80104b8b)
+![data collection  drawio](https://github.com/user-attachments/assets/503a384a-1215-4af1-9f2f-9c426569050d)
